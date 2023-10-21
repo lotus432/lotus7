@@ -1,4 +1,4 @@
-﻿` `**lotus7 skins | last update 21.10.2023**
+**lotus7 skins | last update 21.10.2023**
 
 [**Youtube**](https://www.youtube.com/watch?v=h49dClvdBC4&t=53s)
 
