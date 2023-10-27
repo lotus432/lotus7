@@ -8,6 +8,10 @@
 
 # [**Keqing skin edit**](https://www.mediafire.com/file/cl9t196c61faikg/Keqing+edit.osk/file)
 
+# [**vv_idke_trail**](https://mega.nz/file/9uAnTCJC#_L2ak_27vqzE_FOQuFl32w7xjcSKGWNrSwPMMM_4Ows)
+
+
+
 
 
 
